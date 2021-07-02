@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Josephhd1
+- 👋 Hi, I’m JosephN
 - 👀 I’m interested in programming and piano
 - 🌱 I’m currently learning English and programming
 ─────────────────────░██░▇▆▅▄▃▂
